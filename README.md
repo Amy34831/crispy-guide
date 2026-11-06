@@ -1,0 +1,2 @@
+# crispy-guide
+EMEMERCY CALLED IP-RELAY ONLY.  FULL DEAF
